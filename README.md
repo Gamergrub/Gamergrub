@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Gamergrub
-- 👀 I’m interested in ... FORTNITE
-- 🌱 I’m currently learning ... FORTNITE
-- 💞️ I’m looking to collaborate on ... FORTNITE
-- 📫 How to reach me ... FORTNITE
-- FORNITE FORNI I LOVE FORNI I LOVE FORNI
+- 👀 I’m interested in ... BFB
+- 🌱 I’m currently learning ... BFB
+- 💞️ I’m looking to collaborate on ... BFB
+- 📫 How to reach me ... dial 911 on your nearest phone
